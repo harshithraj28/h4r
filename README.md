@@ -13,9 +13,7 @@
 
 - ⚡ Fun fact **I think i am a rare breed who can backpack through mountains by day, defeat a final boss by night, and still make it to dinner with friends—mainly because food is the true endgame.**
  
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
